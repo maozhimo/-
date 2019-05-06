@@ -8,3 +8,5 @@ https://shimo.im/docs/SqU7DMHeMOY258OG
 https://shimo.im/docs/cdSyWrmZuiABAF0m
 ## [第四次作业](https://shimo.im/docs/jYWowXgZvEU4mGvL)
 https://shimo.im/docs/jYWowXgZvEU4mGvL
+## [第七次作业]（https://shimo.im/docs/94ZIcoPf4eYCRRm9）
+https://shimo.im/docs/94ZIcoPf4eYCRRm9
